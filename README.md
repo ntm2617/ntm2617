@@ -1,4 +1,5 @@
-## Hi there! ₍ᐢ. .ᐢ₎ ₊˚⊹♡
+##  ⪩. .⪨
+## Hi there!⭐
 
 I'm an Electrical Engineering student.
 
